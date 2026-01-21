@@ -3,8 +3,12 @@
 
 wicked arts
 
-bunch of evil scripts made for roblox studios command bar
-Very Destructive i would not suggest to use this on actual games
-Unless you hate someeone then ok cool
+the best place (probably) for cool and destructive scripts for roblox studio
 
-hhhhh
+<img width="1012" height="78" alt="cooltext500562709226979" src="https://github.com/user-attachments/assets/07fe0744-f0f1-42aa-a591-5d0b2a334af3" />
+
+- Im not responsible if you severely damage a place with these
+- Leak this and i will personally dropkick you
+- Thats all
+
+<img width="1577" height="79" alt="HIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII" src="https://github.com/user-attachments/assets/fcb1f3bd-0993-423a-809b-c17c10df02a4" />
